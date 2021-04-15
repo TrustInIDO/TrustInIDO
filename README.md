@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TrustInIDO
-- 👀 I’m interested in De-Fi securities, https://t.me/TrustinIDO
+- 👀 I’m interested in De-Fi securities, stay up to date with everything we are doing in our announcement telegram group : https://t.me/TrustinIDO
 - 🌱 I’m currently learning how to go outside again
 - 💞️ I’m looking to collaborate on a great many things.
 - 📫 How to reach me @TrustInIDO
